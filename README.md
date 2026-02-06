@@ -34,5 +34,5 @@ I am a data analyst with hands-on experience in building Power BI dashboards tha
 Actively seeking opportunities in Data Analytics and Business Intelligence roles.
 
 📍 Location: UAE  
-🔗 LinkedIn: (Add your LinkedIn profile link here)
+🔗 LinkedIn: https://www.linkedin.com/in/aumbiky-chauhan-059a83286/
 
